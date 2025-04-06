@@ -1,1 +1,1 @@
-"Pendejo"
+"eres un tonto fancisco "
